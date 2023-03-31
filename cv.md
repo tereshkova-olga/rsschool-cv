@@ -1,5 +1,7 @@
 # rsschool-cv
 
+![avatar](https://pbs.twimg.com/profile_images/602045678932664320/qiSjCC0O.jpg "image")
+
 # **Tereshkova Olga**
 
 ### **Contacts:**
